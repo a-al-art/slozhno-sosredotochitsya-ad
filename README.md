@@ -1,0 +1,1 @@
+https://github.com/a-al-art/slozhno-sosredotochitsya-ad.git
